@@ -1,0 +1,2 @@
+# resume
+Khumoyun ochilov Resume
